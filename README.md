@@ -1,1 +1,0 @@
-# gallomatheus.github.io
